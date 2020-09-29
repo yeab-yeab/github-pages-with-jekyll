@@ -1,3 +1,7 @@
+---
+title: "yeabsera dessalegn"
+date: 2020-09-30
+---
 I’m glad you are here. I plan to talk about my self
 
 My name is Yeabsera Dessalegn, but i kinda like it when someone calls me yeab.
